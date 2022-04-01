@@ -1,0 +1,2 @@
+# Hampta-Pass-Trek
+Hampta pass is spreading from the Kullu region to the desert of Spiti. It has a majestic geographical landscape. Where you can see a green valley on one side and a cold desert valley on the other side at a time. The best time to visit the Hampta pass trek is from June to September. You are expecting to see three different scene changes in just the first two days from Alpine Forest to the green meadows and then moraine.
